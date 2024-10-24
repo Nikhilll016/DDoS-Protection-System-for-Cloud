@@ -149,9 +149,9 @@ This project is licensed under the **MIT License**. See the [LICENSE](./LICENSE)
 
 ## 📞 Contact Information
 
-For queries or support, feel free to reach out at [pandyaaryanp348@gmail.com](pandyaaryanp348@gmail.com).
+For queries or support, feel free to reach out at [nikhilbhardwaj16@icloud.com](bhardwajnikhilll016@gmail.com).
 
 ---
 
 **Developed by Nikhil Bhardwaj And Team**  
-🔗 Connect on [LinkedIn](https://www.linkedin.com/in/aryanpandya/) EOF
+🔗 Connect on [LinkedIn](https://www.linkedin.com/in/nikhilbhardwaj016/) EOF
